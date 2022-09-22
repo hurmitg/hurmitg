@@ -17,7 +17,7 @@
 
 - 📄 Know more about me [Resume](https://drive.google.com/file/d/1C2yv1lUjGm5xdKFNs_Lr3-n6uPta80RZ/view)
 
-- ⚡ Fun fact *I love Writing 🖊️*
+- ⚡ Fun fact - *I love Writing 🖊️*
 
 -  🌎 Let's Create something the World needs 🌎
 
