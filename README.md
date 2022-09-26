@@ -21,6 +21,8 @@
 
 -  🌎 Let's Create something the World needs 🌎
 
+- 👉 Connect with me on [LinkedIn](https://www.linkedin.com/in/Hurmit/)
+
 
 <br/>
 <br/>
